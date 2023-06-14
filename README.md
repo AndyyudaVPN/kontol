@@ -1,2 +1,2 @@
 # prokontrol
-Mas bokirr mantap
+kontol
